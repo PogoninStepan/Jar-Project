@@ -8,9 +8,10 @@ RIP Billy Herrington, you were the coolest gachi man...
 
 ![Billy](https://i.ytimg.com/vi/NDaSKpI9eW0/maxresdefault.jpg)
 
->Притягивают не модно одетые , притягивают не те , у кого новая модель Айфона. Притягивают простые люди со светлой улыбкой
-
 Wee will remember you...
 
 ![1480706726_BillyHerrington](https://user-images.githubusercontent.com/106531950/170999163-aa7dda6b-1a8e-4585-b558-c6f80b7a857a.jpg)
+
+>Притягивают не модно одетые , притягивают не те , у кого новая модель Айфона. Притягивают простые люди со светлой улыбкой
+
 Ссылка на Readme в репозитарии Юсупова Данила https://github.com/CatKiller667/MyLabs_NSTU/blob/main/README.md
