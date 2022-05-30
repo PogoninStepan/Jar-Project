@@ -1,4 +1,4 @@
-# ** ГИТХАБУС **
+# ГИТХАБУС
 
 ![AMOGUS](https://i.ytimg.com/vi/gsGr8KeYulg/maxresdefault.jpg?9289889566)
 
