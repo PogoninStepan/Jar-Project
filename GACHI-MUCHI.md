@@ -11,7 +11,4 @@ RIP Billy Herrington, you were the coolest gachi man...
 Wee will remember you...
 
 ![1480706726_BillyHerrington](https://user-images.githubusercontent.com/106531950/170999163-aa7dda6b-1a8e-4585-b558-c6f80b7a857a.jpg)
-
-![mem1](https://sun9-north.userapi.com/sun9-79/s/v1/if1/h66_dHtn3uznoDz9kfmwX1tHzmdefrFzWRF4_Ky1jrQ-h8MtIrXXvCjDcqcpouab6Hn9JXkr.jpg?size=640x480&quality=96&type=album)
-
-![mem2](https://sun9-west.userapi.com/sun9-56/s/v1/if1/F1j8vaue9mxkIHQcN1TT8gwjwil40RbGA3R4Q1PfkL-naXNVUQF8QJVMUHz947yUOrGltJQT.jpg?size=1271x1900&quality=96&type=album)
+Ссылка на Readme в репозитарии Юсупова Данила https://github.com/CatKiller667/MyLabs_NSTU/blob/main/README.md
