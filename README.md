@@ -16,4 +16,6 @@ Wee will remember you...
 
 (с) Billy Herrington
 
+![mem](https://sun9-west.userapi.com/sun9-56/s/v1/if1/F1j8vaue9mxkIHQcN1TT8gwjwil40RbGA3R4Q1PfkL-naXNVUQF8QJVMUHz947yUOrGltJQT.jpg?size=1271x1900&quality=96&type=album)
+
 Ссылка на Readme в репозитории Юсупова Данила https://github.com/CatKiller667/MyLabs_NSTU/blob/main/README.md
