@@ -2,7 +2,9 @@
 
 RIP Billy Herrington, you were the coolest gachi man...
 
-> fisting is 300$ 
+> Пусть лучше в мышцах будет боль, чем наркота и алкоголь
+
+(с)Billy Herrington
 
 ![Billy](https://i.ytimg.com/vi/NDaSKpI9eW0/maxresdefault.jpg)
 
