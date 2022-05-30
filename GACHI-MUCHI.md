@@ -14,4 +14,6 @@ Wee will remember you...
 
 >Притягивают не модно одетые , притягивают не те , у кого новая модель Айфона. Притягивают простые люди со светлой улыбкой
 
-Ссылка на Readme в репозитарии Юсупова Данила https://github.com/CatKiller667/MyLabs_NSTU/blob/main/README.md
+(с) Billy Herrington
+
+Ссылка на Readme в репозитории Юсупова Данила https://github.com/CatKiller667/MyLabs_NSTU/blob/main/README.md
